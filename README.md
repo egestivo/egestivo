@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing for now
 - 📫 How to reach me: DOTA 2
 - 😄 Pronouns: Quejeso flaco.
-- ⚡ Fun fact: I like to eat bread.
+- ⚡ Fun fact: I like Kaina Tsutsumi very much
